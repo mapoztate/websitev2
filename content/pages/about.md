@@ -8,7 +8,7 @@ template: 'about-template'
 
 <br>
 
-Currently triple majoring in Data Science, Environmental Economics & Policy, and South & Southeast Asian Studies at UC Berkeley. I'm exploring adjacent topics in data engineering including security, virtualization, and product, with research interests in computational social science (i.e. privacy/algorithmic disgorgement, socioeconomics) and computer science pedagogy. Please refer to my LinkedIn/CV for more information regarding my professional/academic experience.
+Studying Data Science, Environmental Economics & Policy, and South & Southeast Asian Studies at UC Berkeley. I'm exploring adjacent topics in data engineering including security and product, with research interests in computational social science and computer science pedagogy. Please refer to my LinkedIn/CV for more information regarding my professional/academic experience.
 
 <br><br>
 

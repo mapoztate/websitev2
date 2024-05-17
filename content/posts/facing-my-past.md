@@ -50,13 +50,13 @@ And to get it out of the way, since it's something that pops up on TikTok all th
 ```
 Aren't you invalidating your own hardships because other people are going through it as well?
 
-> Yes...but no, my struggles compared to theirs are like David and Goliath; that's a view privileged people use to make themselves feel better. If you're lucky enough to read this, you're just as entitled as me.
+> Yes...but no, my struggles compared to theirs are miniscule at most; problems will always exist in life, but don't let learned helplessness be the one guiding you. By even being able to go to college, I'm entitled enough where mistakes are something I'm privileged to learn from rather than suffer by it.
 
 I don't think my stance on this is ever going to change. My mom lives as frugally as possible, the same she's lived ever since she was back home. Buy the things that make her happy in life and find joy in the simple things in life.
 ```
 
-It's hard to believe when you don't see it. And it's not like the cute Canva Instagram posts can change things. Rags to riches is possible, but our system makes it very hard to do so; in other words, the rich get richer and the poor go down a larger rabbit hole. In fact, our very own consumerism is built on the livelihood of others, but that's a subject for another day.
+It's hard to believe when you don't see it. And it's not like cute Canva Instagram posts can change things. Rags to riches is possible, but our system makes it very hard to do so; in other words, the rich get richer and the poor go down a larger rabbit hole. In fact, our very own consumerism is built on the livelihood of others, but that's a subject for another day.
 
 I definitely need to go back; not just for family, but to reexplore a version of myself that gets lost when caught up in life.
 
-Just a short little rant, nothing of substance. Even taking a little of bit this post to influence your outlook means the world to me.
+Just a short little rant, nothing of substance.
